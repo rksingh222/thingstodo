@@ -24,6 +24,7 @@
 <body>
     <div>
       1. Buy a leg stabler if you can
+      (https://www.bettercaremarket.com.au/hinged-knee-brace-push-med.html?gclid=EAIaIQobChMIqIr_w57O_AIViTUrCh3kyQf8EAQYDyABEgLmRPD_BwE)
       2. Buy a rechargable lamp
       3. Buy a fan (rechargable fan)
       4. Buy a tent adjustible pole  
