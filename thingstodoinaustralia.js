@@ -28,6 +28,7 @@
       2. Buy a rechargable lamp
       3. Buy a fan (rechargable fan)
       4. Buy a tent adjustible pole  
+      5. bandage that sticks
     </div>
 </body>
 
