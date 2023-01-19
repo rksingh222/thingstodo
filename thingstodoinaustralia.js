@@ -29,6 +29,7 @@
       3. Buy a fan (rechargable fan)
       4. Buy a tent adjustible pole  
       5. bandage that sticks
+      (self adhesive bandage tape)
     </div>
 </body>
 
