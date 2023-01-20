@@ -30,6 +30,7 @@
       4. Buy a tent adjustible pole  
       5. bandage that sticks
       (self adhesive bandage tape)
+      6. fishing net
     </div>
 </body>
 
