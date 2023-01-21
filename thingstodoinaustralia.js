@@ -31,6 +31,7 @@
       5. bandage that sticks
       (self adhesive bandage tape)
       6. fishing net
+      7. life jacket
     </div>
 </body>
 
