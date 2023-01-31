@@ -32,6 +32,7 @@
       (self adhesive bandage tape)
       6. fishing net
       7. life jacket
+      8. burning candle glass buy
     </div>
 </body>
 
