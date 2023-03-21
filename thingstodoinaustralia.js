@@ -38,7 +38,7 @@
       11. alarm watch
       12. small bucket
       13. strong thread
-      14. breville the pop fan - myer(the PopFan Grey LFA100GRY)
+      14. breville the pop fan - myer(the PopFan Grey LFA100GRY) [purchased]
       15. quilt
       16. Bag
       17. Mosquito Net
