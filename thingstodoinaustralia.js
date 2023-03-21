@@ -42,6 +42,7 @@
       15. quilt
       16. Bag
       17. Mosquito Net
+      18. spray bottle
     </div>
 </body>
 
