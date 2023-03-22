@@ -43,6 +43,7 @@
       16. Bag
       17. Mosquito Net
       18. spray bottle
+      19. web camera
     </div>
 </body>
 
