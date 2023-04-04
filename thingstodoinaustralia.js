@@ -44,6 +44,7 @@
       17. Mosquito Net
       18. spray bottle
       19. web camera
+      20. multiple usb adapter
     </div>
 </body>
 
